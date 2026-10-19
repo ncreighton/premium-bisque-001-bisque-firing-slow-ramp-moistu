@@ -1,0 +1,2 @@
+# premium-bisque-001-bisque-firing-slow-ramp-moistu
+Stop losing bisque ware to hidden moisture—systematically log every slow ramp stage and escape point to eliminate cracks and explosions.  This Notion template transforms your bisque firing process by providing a structured, repeatable log for the critical slow ramp phase where moisture must escape safely. Instead of relying on memory or scattered n
